@@ -10,4 +10,5 @@ Contact Us If you have any questions or suggestions about my Privacy Policy, do 
 
 
 https://play.google.com/store/apps/details?id=fatahfattah.kurdilatini
+
 www.appstore.com/KurdiLatini
