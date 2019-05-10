@@ -7,3 +7,7 @@ If you choose to use my Service, then you agree to the collection and use of inf
 Changes to This Privacy Policy I may update our Privacy Policy from time to time. Thus, you are advised to review this page periodically for any changes. I will notify you of any changes by posting the new Privacy Policy on this page. These changes are effective immediately after they are posted on this page.
 
 Contact Us If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me.
+
+
+https://play.google.com/store/apps/details?id=fatahfattah.kurdilatini
+www.appstore.com/KurdiLatini
